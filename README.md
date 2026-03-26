@@ -9,6 +9,6 @@ My name is José Eduardo
 
 ## Você pode entrar em contato comigo 📫
 
-jose.lino.chaves@escola.pr.gov.br
+linochavesjoseeduardo@gmail.com
 
 ![](https://media1.tenor.com/m/gfelMNw7lYAAAAAC/dive-together-or-dont-dive-helldivers.gif)
